@@ -1,2 +1,0 @@
-# ShopNuocHoa
-THOM PHUC SHOP
